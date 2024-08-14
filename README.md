@@ -6,7 +6,7 @@ Estou estudando na [Alura](https://www.alura.com.br/)
 - Planejo desenvolver projetos:
 ![](https://media1.tenor.com/m/pWzOkoucx-sAAAAd/lunadials-topi.gif)
 
--15 anos,07/2009,paranaense(BR)
+15 anos,07/2009,paranaense(BR)
 -Estudante dedicado
 -Cristão estudioso
 -Amo minha familia 
