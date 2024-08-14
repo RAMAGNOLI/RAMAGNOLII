@@ -12,4 +12,7 @@ Estou estudando na [Alura](https://www.alura.com.br/)
 -Amo minha familia 
 -sou desenhista (semi-profissional)
 -Gosto de quadrinhos,filmes,ilustrações,animes e estudos (um pouco nerd)
+-Vou á academia
+-Entrego o meu melhor em tudo oque faço
+-
 
