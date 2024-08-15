@@ -1,18 +1,21 @@
-BEM VINDO, DEUS ABENÇÕE ![](https://cdn3.emoji.gg/emojis/holy_bible.png)
+BEM VINDO, DEUS ABENÇÕE ![](https://images.emojiterra.com/google/android-10/512px/1f4d6.png)
 
-**Leonardo**
-Estou estudando na [Alura](https://www.alura.com.br/)
--Estou me desenvolvendo na linguagem JavaScrpit
+**Leonardo Ramagnoli**
+- Estou estudando na [Alura](https://www.alura.com.br/)
+- Estou me desenvolvendo na linguagem JavaScrpit
 - Planejo desenvolver projetos:
-![](https://media1.tenor.com/m/pWzOkoucx-sAAAAd/lunadials-topi.gif)
+- Entre em contato comigo (leonardo.ramagnoli.silva@escola.pr.gov.br)
 
-15 anos,07/2009,paranaense(BR)
--Estudante dedicado
--Cristão estudioso
--Amo minha familia 
--sou desenhista (semi-profissional)
--Gosto de quadrinhos,filmes,ilustrações,animes e estudos (um pouco nerd)
--Vou á academia
--Entrego o meu melhor em tudo oque faço
--
+![](https://media1.tenor.com/m/TrHi8k3tzFEAAAAd/starman-superman.gif)
 
+- 15 anos,07/2009,paranaense(BR);
+- Estudante dedicado;
+- Cristão estudioso;
+- Amo minha familia; 
+- Sou desenhista (semi_profissional);
+- Gosto de quadrinhos, mangás,filmes,ilustrações e animes;
+- Entrego o meu melhor em tudo oque faço;
+- Sempre tento ser o mais culto e responsável possível;
+- Sou educado, sempre que posso;
+- Gosto de apreciar conteúdos complexos, 
+ 
