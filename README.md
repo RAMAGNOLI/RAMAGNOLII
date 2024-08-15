@@ -17,5 +17,6 @@ BEM VINDO, DEUS ABENÇÕE ![](https://images.emojiterra.com/google/android-10/51
 - Entrego o meu melhor em tudo oque faço;
 - Sempre tento ser o mais culto e responsável possível;
 - Sou educado, sempre que posso;
-- Gosto de apreciar conteúdos complexos, 
+- Gosto de apreciar conteúdos complexos, sérios e voltado para o público adulto
+- 
  
