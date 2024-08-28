@@ -14,6 +14,7 @@ BEM VINDO, DEUS ABENÇÕE ![](https://images.emojiterra.com/google/android-10/51
 - Amo minha familia; 
 - Sou desenhista (semi_profissional);
 - Gosto de quadrinhos, mangás,filmes,ilustrações e animes;
+- Estou cursando inglês, alemão e francẽs
 - Entrego o meu melhor em tudo oque faço;
 - Sempre tento ser o mais culto e responsável possível;
 - Sou educado, sempre que posso;
